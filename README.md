@@ -13,7 +13,7 @@
 
 🌱 **Currently**
 - Building projects to strengthen my development skills
-- Looking for Software Development Internship (Summer 2025)
+- Looking for Software Development Internship (Summer 2026)
 
 📫 **Reach me at**
 - LinkedIn: *coming soon*
