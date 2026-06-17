@@ -16,7 +16,7 @@
 - Looking for Software Development Internship (Summer 2026)
 
 📫 **Reach me at**
-- LinkedIn: *coming soon*
+- LinkedIn: (https://www.linkedin.com/in/shah-fahad-9646b72b2/)
 - Email: shahfahadmalik8299@gmail.com
 
 ---
